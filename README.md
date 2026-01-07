@@ -18,7 +18,7 @@ our simons will not want to date you our simons will not want to date you our si
 
 ## DNI!
 
-people who expect our hypoempathetic alters (notim, chemical, frankie and franky) to show empathy
+people who expect our hypoempathetic alters (notim, chemical, frankie and franky) to show empathy or pretend to (they can pretend, just sometimes they're absolutely not in the mood!)
 
 bodily under 14 or over 25 (nothing personal, we just don't feel too comfy around older or younger people on the internet.)
 
