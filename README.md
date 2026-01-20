@@ -12,7 +12,7 @@ majority of us don't believe in doubles, in fact, many of us accept them with op
 
 (character) irls can interact, we won't prevent mentally ill people from interacting, we are ill ourselves, but if you start bringing us into it, we will HEAVILY reality check you.
 
-please do NOT be rude to our gatekeeper, he will cut you off with only him being willing to cut you off. bitch can't take jokes.
+the gatekeeper can take jokes now, joke all you want! he will laugh!
 
 our simons will not want to date you our simons will not want to date you our simons will not want to date you our simons will not want to date you you get that through your head our simons will not want to date you
 
