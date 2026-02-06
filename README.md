@@ -4,7 +4,7 @@ hello, we have multiple aliases, but you can just call us murder teeth or parasi
 
 *we're actively crushing on someone*. yes, we hate it, but i'm putting this here to tell you NOT to try with us unless you suspect you're our crush!
 
-we usually prefer to chat with people 14 turning 15 and over, but also under 25. *freshly 14 and 25 year olds are on thin ice. those under 14 and over 25 DNI.*
+we usually prefer to chat with people 14 turning 15 and over, but also under 25. *freshly 14 and 25 year olds are on thin ice. those under 14 and over 25 DNI unless we were friends before this boundary was put into place.*
 
 we are a system. some of us are uncomfy with "doubles" or sourcemates, and all of us can be uncomfortable if we're in some kind of episode. we'll warn you just incase. be ESPECIALLY careful with those in the "penis disorder squad" (why the fuck are we named that.) which consists of those like acid, artur, the chelseas, david, some of the dudes, etc.. it will be specified if they have "p" in their name.
 
