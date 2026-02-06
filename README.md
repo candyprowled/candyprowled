@@ -14,6 +14,6 @@ acunat haters, chemlab haters, haters of any industrial artists we like. industr
 
 transplurals, transableds, transEDs, trans-anything that isn't gender. no, arson, personality disorders aren't cutesy..
 
-people who think nzism is an AESTHETIC?????
+people who think nzism is an AESTHETIC????? who ARE YOU
 
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124101.png">
