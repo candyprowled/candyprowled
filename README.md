@@ -1,4 +1,3 @@
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1797_20260206123950.png">
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124106.png">
 
 hello, we have multiple aliases, but you can just call us murder teeth or parasite mine. as you can probably tell, we LOVE acumen nation and the members' side projects! especially fawn, go listen to fawn, frozen is a beautiful album.
