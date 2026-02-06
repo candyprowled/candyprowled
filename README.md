@@ -1,8 +1,6 @@
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1797_20260206123950.png">
 <img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124106.png">
 
-## will you cut your . . murder teeth on me . .
-
 hello, we have multiple aliases, but you can just call us murder teeth or parasite mine. as you can probably tell, we LOVE acumen nation and the members' side projects! especially fawn, go listen to fawn, frozen is a beautiful album.
 
 *we're actively crushing on someone*. yes, we hate it, but i'm putting this here to tell you NOT to try with us unless you suspect you're our crush!
@@ -18,3 +16,5 @@ acunat haters, chemlab haters, haters of any industrial artists we like. industr
 transplurals, transableds, transEDs, trans-anything that isn't gender. no, arson, personality disorders aren't cutesy..
 
 people who think nzism is an AESTHETIC?????
+
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124101.png">
