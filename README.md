@@ -6,6 +6,8 @@ hello, we have multiple aliases, but you can just call us murder teeth or parasi
 
 we usually prefer to chat with people 14 turning 15 and over, but also under 25. *freshly 14 and 25 year olds are on thin ice. those under 14 and over 25 DNI.*
 
+we are a system. some of us are uncomfy with "doubles" or sourcemates, and all of us can be uncomfortable if we're in some kind of episode. we'll warn you just incase. be ESPECIALLY careful with those in the "penis disorder squad" (why the fuck are we named that.) which consists of those like acid, artur, the chelseas, david, some of the dudes, etc.. it will be specified if they have "p" in their name.
+
 ## DNI
 
 acunat haters, chemlab haters, haters of any industrial artists we like. industrial is a big special interest for us!
