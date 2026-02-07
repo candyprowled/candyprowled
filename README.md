@@ -2,7 +2,7 @@
 
 hello, we have multiple aliases, but you can just call us murder teeth or parasite mine. as you can probably tell, we LOVE acumen nation and the members' side projects! especially fawn, go listen to fawn, frozen is a beautiful album.
 
-*we're actively crushing on someone*. yes, we hate it, but i'm putting this here to tell you NOT to try with us unless you suspect you're our crush!
+WE ARE FREE WE ARE SINGLE HELLO LADIES AND GENTLEMEN AND OTHERNpeopLE WE ARE FREE - artur
 
 we usually prefer to chat with people 14 turning 15 and over, but also under 25. *freshly 14 and 25 year olds are on thin ice. those under 14 and over 25 DNI unless we were friends before this boundary was put into place.*
 
