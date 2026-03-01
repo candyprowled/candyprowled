@@ -1,21 +1,16 @@
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124106.png">
-
-hello, we have multiple aliases, but you can just call us murder teeth or parasite mine. as you can probably tell, we LOVE acumen nation and the members' side projects! especially fawn, go listen to fawn, frozen is a beautiful album.
-
-WE ARE FREE WE ARE SINGLE HELLO LADIES AND GENTLEMEN AND OTHERNpeopLE WE ARE FREE - artur
-
-we usually prefer to chat with people 14 turning 15 and over, but also under 25. *freshly 14 and 25 year olds are on thin ice. those under 14 and over 25 DNI unless we were friends before this boundary was put into place.*
-
-we are a system. some of us are uncomfy with "doubles" or sourcemates, and all of us can be uncomfortable if we're in some kind of episode. we'll warn you just incase. be ESPECIALLY careful with those in the "penis disorder squad" (why the fuck are we named that.) which consists of those like acid, artur, the chelseas, david, some of the dudes, etc.. really, just ask!
-
-## DNI
-
-acunat haters, chemlab haters, haters of any industrial artists we like. industrial is a big special interest for us!
-
-"parasocialists", xenosatanists, "proqueer" label users.. the creator of "proqueer" is a RAPIST, COME ON.
-
-transplurals, transableds, transEDs, trans-anything that isn't gender. no, arson, personality disorders aren't cutesy..
-
-people who think nzism is an AESTHETIC????? who ARE YOU
-
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1798_20260206124101.png">
+<p align="center">
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1598_20260301214300.png">
+<p align="center">
+I'M ABOUT TO **BREAK!**
+<p align="center">
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/IMG_8003.png">
+<p align="center">
+hello! we are the oh cynthia collective! we're really huge acumen nation fanatics and encourage you to listen to them :) 
+<p align="center">
+you will usually find us hanging out with friends in safe #2, and occasionally in #1!
+<p align="center">
+strict under 14 dniuf .. 20+ also dniuf or friends with friends. we have bad experiences with 20 year olds.
+<p align="center">
+people who whine over every non-issue dni. i mean non-issues, not major issues
+<p align="center">
+hey. if you somehow found me after my rebrand and you're stalking me or some shit, contact me on another account and explain how your ass wasn't grooming me. you know who you are. come on, i'll wait.
