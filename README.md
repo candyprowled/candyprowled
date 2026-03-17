@@ -1,16 +1,18 @@
 <p align="center">
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1598_20260301214300.png">
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/Untitled1877_20260317223628.png">
 <p align="center">
-I'M ABOUT TO BREAK!
+<img src="https://file.garden/aYVH1hlf0CoLr2FO/IMG_7824.png">
 <p align="center">
-<img src="https://file.garden/aYVH1hlf0CoLr2FO/IMG_8003.png">
+HELLO! OUR COLLECTIVE NAME IS "OHCYNTHIA". WE ARE A MID-TEENAGED USDD SYSTEM AND PREFER TO TALK TO THOSE UNDER THE AGE OF 20 AND OVER THE AGE OF 13. UNLESS YOU'RE ALREADY OUR FRIEND, YOU'RE GOOD!
 <p align="center">
-hello! we are the oh cynthia collective! we're really huge acumen nation fanatics and encourage you to listen to them :) 
+BEFORE YOU INTERACT:
 <p align="center">
-you will usually find us hanging out with friends in safe #2, and occasionally in #1! if you try and encourage us to leave our friends, you will promptly be shot in the cranium.
+MANY OF US ARE SEVERELY IMPAIRED WHEN IT COMES TO RELATIONSHIPS.
 <p align="center">
-strict under 14 dniuf .. 20+ also dniuf or friends with friends. we have bad experiences with 20 year olds.
+FRAN IS ALREADY IN A RELATIONSHIP WITH CHRONICAL'S NOLI. PLEASE LEAVE HER ALONE WHEN IT COMES TO RELATIONSHIPS.
 <p align="center">
-people who whine over every non-issue dni. i mean non-issues, not major issues
+PLEASE DO NOT INTERACT IF YOU HAVE THE MENTALITY OF A 10- YEAR OLD. SYSKIDS ARE DIFFERENT, BUT MANY OF US AREN'T THE BEST WITH SYSKIDS! WE TRY OUR HARDEST ANYWAY.
 <p align="center">
-hey. if you somehow found me after my rebrand and you're stalking me or some shit, contact me on another account and explain how your ass wasn't grooming me. you know who you are. come on, i'll wait. no, seriously, explain how weird you were acting towards frank.
+IF YOU BEFRIEND US PURELY BECAUSE YOU CONSIDER US TO BE "PERFECT FOR YOU" IN THE BAD WAY, EXPECT US TO ACT DISTANT. WE WILL NOT LET THAT SHIT HAPPEN AGAIN.
+<p align="center">
+jakob, disrespectfully go rot in a ditch. why would you say you don't know us if you don't have anything to hide?
